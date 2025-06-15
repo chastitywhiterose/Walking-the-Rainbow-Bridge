@@ -2,7 +2,7 @@
 
 While it would be easy to write a chapter for each of the unique problems the LGBTQIA community faces every day of their lives, I want to focus instead on where the hatred and discrimination really stem from.
 
-Of course, it would be easy to place the blame on religion and say that it is only because of outdated and mistranslated holy texts; this avoids the issue and pushes it back a step rather than questioning why the religions became anti-gay.
+Of course, it would be easy to place the blame on religion and say that it is only because of outdated and mistranslated holy texts. This avoids the issue and pushes it back a step rather than questioning why the religions became anti-gay.
 
 Instead, I propose a new theory that ties the discrimination against Gay, Transgender, and Asexual people.
 
