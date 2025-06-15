@@ -1,0 +1,21 @@
+# Chapter 4: The Asexual Minority
+
+Much of the LGBTQIA community has a reputation for being portrayed as more sexual than straight, cisgender people. I don't believe this reputation is deserved. While we all have similarities in facing discrimination and being different, the letters T, I, and A have absolutely nothing to do with who we have sex with.
+
+Transgender people identify as a different gender role and prefer different pronouns and names than would be typical of our biological sex. We distinguish the inner feeling of gender from the outer appearance of the body. For example, I have never denied being biologically male, but I just don't see myself that way. None of this is a sexual statement.
+
+Intersex people have bodies and chromosomes that sometimes match neither male nor female, according to common definitions. They might be born with more than one set of sex organs, but this does not mean that they use any of them. Some of them do, of course, and that is their business.
+
+Asexual people are represented by the letter A. Asexual people are the least represented of the group because they either lack sexual attraction to anyone or, in some cases, might be sexually or romantically attracted but lack the actual desire to do anything sexual. It is kind of like being full and not wanting to eat food, even if it is food that tastes good.
+
+I can speak on this experience because I am asexual in the sense that I never look at someone and think about having sex with them. Instead, my first thought is asking them if they want to play Chess or read any of the books I wrote. I have never really been attracted in a sexual way to anyone.
+
+There are times when I might be romantically attracted to someone. This attraction means that I might like someone enough to consider whether they would be a life partner like a spouse. However, this remains in the realm of fantasy because it has only happened maybe once or twice after knowing them personally for at least a year. I guess you could say I evaluated them on their personality and couldn't care less whether they were male, female, or intersex. I will never have sex with them anyway, so I don't care if they have seventeen penises and 5 vaginas. I just prefer that they keep their pants on and play Chess with me.
+
+Asexual people are, of course, the minority within the broader LGBTQIA community. In fact, some of the LGB people don't really accept Asexual people as being one of them. We are sort of divided between the people whose identity is defined by who they would theoretically have sex with. and the Asexual people who don't have sex with people because the idea doesn't interest them.
+
+It is also worth mentioning that transgender people cannot usually engage in sexuality because they have gender dysphoria and are uncomfortable with the parts they were born with. In some cases, their feelings can change if they have surgeries to change their body into something that they feel ok with.
+
+The main point of this chapter is to explain that, as a whole, you can't assume that someone is having sex with anyone at all, whether they are LGBTQIA or even if they are straight. Many people have taken a vow of celibacy for religious or ethical reasons. Even more than that, many of them remain abstinent until marriage and prefer to have sex only with their future spouse. Just remember not to assume the sexual feelings or activity of anyone. You don't know what they are doing, and it isn't really any of your business unless you are their partner or they have shared something with you for some purpose.
+
+For example, I have shared more about myself in this one chapter than most people who have known me my whole life. Most of them know that I can play Tetris or Chess. My co-workers at Walmart know that I am good at stocking Frozen vegetables, and those who read my books know that I am a confused virgin who has still not figured out why people are obsessed with sex. But I share this for educational purposes because I am a writer who likes to educate people on the nuances of different parts of LGBTQIA identities so that we can be understood instead of just being a punchline in a movie or TV show while being played by cisgender straight actors who don't even have a clue what we really act like.
