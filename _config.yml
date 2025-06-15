@@ -5,7 +5,7 @@
 #plugins:
 #- jekyll-remote-theme # add this line to the plugins list if you already have one
 
-theme: minimal-mistakes-jekyll
+remote_theme: "mmistakes/minimal-mistakes@4.27.1"
 
-title: [Walking the Rainbow Bridge]
-description: [Creating Conversations for Diversity, Equity, and Inclusion]
+title: Walking the Rainbow Bridge
+description: Creating Conversations for Diversity, Equity, and Inclusion
