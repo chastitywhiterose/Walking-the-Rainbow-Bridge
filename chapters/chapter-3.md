@@ -21,3 +21,15 @@ Society rewards sexual or romantic relationships and puts them on a pedestal. Ev
 Healthcare is hard for everyone, but for people who already lack a good job and health insurance, if they have an illness, they have no hope of getting treatment. It is also worth mentioning that for transgender people, the surgeries and or hormones they need to feel comfortable in their own body are either denied by health insurance, or a doctor can refuse to do it for personal or religious reasons. Therefore, many people, including myself, have self-harmed their bodies because they could not get the help they needed from a trained surgeon who can remove their breasts, penis, testicles, or whatever is causing them gender dysphoria.
 
 Also, nobody would seriously have their genitals operated on without a good reason. Although this book is not about my experience specifically, I did have to fight for two years to find someone to remove my testicles. This surgery was needed primarily for reasons of excruciating pain due to testicular torsion, but gender dysphoria also played a large role as well. During that time of intense pain, I used to research suicide methods as well as self-castration methods. It is only because I was finally able to get trained medical help in September of 2020 that I am alive to tell you that I understand why suicide is so common for my people.
+
+## 4. Religious Abuse
+
+The three major monotheistic religions, Christianity, Judaism, and Islam, all tend to speak negatively in their holy scriptures and/or the common traditions of the followers of that religion. I cannot speak on most religions, but I can tell you that those who call themselves Christians tend to pick on homosexuality and describe it as an example of a sin that is somehow worse than murder, theft, lying, or adultery. Of course, they deny that they do this.
+
+But the key issue is that in spite of the fact that some people are not even having sex with anyone, they are still constantly preached to and told they have a sinful lifestyle regardless of the fact that they have not acted on their desires. Even so, I would argue that their sexual activity, if any, is between them, their partner, and whichever God they believe in. 
+
+But the reason I bring this up is not to bash religion but to explain how a gay or transgender person is often excluded from participating in a religious life. When they are told that they cannot inherit the kingdom of God (see 1 Corinthians 6:9), they can be turned away from finding comfort in religious faith or a relationship with God. Because many people find meaning in their lives through religion, this is one more thing that many LGBT people are not allowed to find comfort and a reason to keep living.
+
+## Conclusion
+
+When considering the reasons I have mentioned, it is no surprise that LGBTQIA people commit suicide at a higher rate because they do not have the same support systems that cisgender heterosexual people do.
