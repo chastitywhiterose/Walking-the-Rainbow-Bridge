@@ -76,3 +76,17 @@ Unfortunately, the Rainbow people are kept poor or are forced to hide in the clo
 My goal is to help common people understand LGBTQIA+ individuals while also helping our community become better communicators so that we can continue to fight for true Diversity, Equity, and Inclusion in all areas of society. I take on this task even though I would much rather be writing a book about how to play a video game instead right now. For many of my people, these are difficult times, and it is a matter of life and death that I write about this rather than my other projects, which are more fun.
 
 This book is therefore considered content writing because rather than being instructions for how to play a game or use specific software, the goal is to help people understand the differences between people so that those who fall outside the majority can be included and treated as equals, especially in the workplace.
+
+Click the chapter you want to read next.
+
+[Chapter 1: Building the Bridge](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-1.md)
+
+[Chapter 2: I Was Born This Way](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-2.md)
+
+[Chapter 3: The LGBTQIA Suicide Epidemic](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-3.md)
+
+[Chapter 4: The Asexual Minority](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-4.md)
+
+[Chapter 5: The Population Conspiracy Theory](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-5.md)
+
+
