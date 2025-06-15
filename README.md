@@ -79,14 +79,14 @@ This book is therefore considered content writing because rather than being inst
 
 Click the chapter you want to read next.
 
-[Chapter 1: Building the Bridge](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-1.md)
+[Chapter 1: Building the Bridge](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-1.html)
 
-[Chapter 2: I Was Born This Way](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-2.md)
+[Chapter 2: I Was Born This Way](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-2.html)
 
-[Chapter 3: The LGBTQIA Suicide Epidemic](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-3.md)
+[Chapter 3: The LGBTQIA Suicide Epidemic](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-3.html)
 
-[Chapter 4: The Asexual Minority](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-4.md)
+[Chapter 4: The Asexual Minority](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-4.html)
 
-[Chapter 5: The Population Conspiracy Theory](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-5.md)
+[Chapter 5: The Population Conspiracy Theory](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-5.html)
 
 
