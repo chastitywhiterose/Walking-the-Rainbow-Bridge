@@ -81,6 +81,8 @@ This book is therefore considered content writing because rather than being inst
 
 Click the chapter you want to read next.
 
+# Table of Contents
+
 [Chapter 1: Building the Bridge](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-1.html)
 
 [Chapter 2: I Was Born This Way](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-2.html)
