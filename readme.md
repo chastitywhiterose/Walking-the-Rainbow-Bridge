@@ -94,3 +94,6 @@ Click the chapter you want to read next.
 [Chapter 5: The Population Conspiracy Theory](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-5.html)
 
 [Chapter 6: Can someone be Gay and a Christian?](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-6.html)
+
+[Chapter 7: The History of Pride Month](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-7.html)
+
