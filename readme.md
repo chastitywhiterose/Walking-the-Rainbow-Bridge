@@ -97,3 +97,5 @@ Click the chapter you want to read next.
 
 [Chapter 7: The History of Pride Month](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-7.html)
 
+[Chapter 8: The Alphabet People](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-8.html)
+
