@@ -1,4 +1,4 @@
-# Chapter 3: The LGBTQIA Suicide Epidemic
+# Chapter 3: The LGBTQIA+ Suicide Epidemic
 
 Those of us who are part of the Lesbian, Gay, Bisexual, Transgender, Queer, Intersex, and Asexual community have a higher rate of depression and suicide than the average person. There are many reasons for this, which I can identify and explain. The following are a few reasons that this is the case.
 
@@ -26,10 +26,49 @@ Also, nobody would seriously have their genitals operated on without a good reas
 
 The three major monotheistic religions, Christianity, Judaism, and Islam, all tend to speak negatively in their holy scriptures and/or the common traditions of the followers of that religion. I cannot speak on most religions, but I can tell you that those who call themselves Christians tend to pick on homosexuality and describe it as an example of a sin that is somehow worse than murder, theft, lying, or adultery. Of course, they deny that they do this.
 
-But the key issue is that in spite of the fact that some people are not even having sex with anyone, they are still constantly preached to and told they have a sinful lifestyle regardless of the fact that they have not acted on their desires. Even so, I would argue that their sexual activity, if any, is between them, their partner, and whichever God they believe in. 
+But the key issue is that in spite of the fact that some people are not even having sex with anyone, they are still constantly preached to and told they have a sinful lifestyle regardless of the fact that they have not acted on their desires. Even so, I would argue that their sexual activity, if any, is between them, their partner, and whichever God they believe in.
 
 But the reason I bring this up is not to bash religion but to explain how a gay or transgender person is often excluded from participating in a religious life. When they are told that they cannot inherit the kingdom of God (see 1 Corinthians 6:9), they can be turned away from finding comfort in religious faith or a relationship with God. Because many people find meaning in their lives through religion, this is one more thing that many LGBT people are not allowed to find comfort and a reason to keep living.
 
-## Conclusion
+## Resources
 
-When considering the reasons I have mentioned, it is no surprise that LGBTQIA people commit suicide at a higher rate because they do not have the same support systems that cisgender heterosexual people do.
+When considering the reasons I have mentioned, it is no surprise that LGBTQIA+ people commit suicide at a higher rate because they do not have the same support systems that cisgender heterosexual people do.
+
+In fact, while I was writing this book in June 2025, I received news that the national 988 Suicide and Crisis Lifeline was ordered to end its "Press 3 option," which matched the caller with someone knowledgeable about LGBTQIA+ issues.
+
+<https://www.thetrevorproject.org/blog/trump-administration-orders-termination-of-national-lgbtq-youth-suicide-lifeline-effective-july-17th/>
+
+When I heard this news, I was quite devastated. I understand that our issues are not the same as other people's general crises that lead them to suicide.
+
+When a person is LGBTQIA+ and calls a suicide hotline, they cannot just talk to some random cisgender straight person who tells them that they probably should stop being gay or transgender, and then all their problems will go away. A lot of people don't trust someone unless they have reason to believe they understand what they are going through. Just like black people probably would not trust white people who have never experienced the targeted hate crimes and discrimination they face. Having special categories for minorities on a suicide hotline is essential for reasons like these.
+
+Not everyone is the same, and if an untrained person says the wrong thing to a suicidal person at their worst moment, that person will most likely die. For this reason, I am obligated to say something about this and try to offer resources that may be helpful to my Rainbow people during difficult times.
+
+The Trevor Project is an organization that helps LGBTQIA+ people in difficult times. I would advise you to look more into it and write the information down so that in the event you are suicidal or put into a situation where you lose your job or home due to discrimination against you for who you are, at least you will have someone to call.
+
+I also included some other hotlines which may be of help. I read their websites, and they care greatly about protecting the privacy of the callers who may be in danger if others find out their personal information.
+
+### Trevor Lifeline for LGBTQ Youth
+
+- 1-866-488-7386
+- <https://www.thetrevorproject.org/get-help/>
+
+### The Gay, Lesbian, Bisexual, and Transgender National Hotline
+
+- 1-888-843-4564
+- https://lgbthotline.org/national-hotline/
+
+### Transgender Lifeline
+
+- United States: (877) 565-8860
+- Canada: (877) 330-6366
+- <https://translifeline.org/hotline/>
+
+If anyone has more websites, links, or phone numbers I can add to this post for people contemplating suicide or facing another crisis, please let me know.
+
+### Chastity's Contact Information
+
+- (816) 844-2077
+- chastitywhiterose@gmail.com
+
+This year is a very dangerous time. People are trying to kill my Rainbow people, and most of them are driven to suicide by people who beat them down till they have nothing left to live for. I may be only one person, but I have been at the lowest point in life, just as many of you have. Please contact someone for help if you are feeling like ending your life.
