@@ -99,3 +99,5 @@ Click the chapter you want to read next.
 
 [Chapter 8: The Alphabet People](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-8.html)
 
+[Chapter 9: Autism and the Misunderstood Rainbow](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-9.html)
+
