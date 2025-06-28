@@ -2,6 +2,10 @@
 
 I refer to the LGBTQIA+ community as the "Rainbow People". However, that is not what most people know them as. They are most commonly called the "Alphabet People" by those who can't keep up with what seems to be an ever-growing acronym. It started as LGB for a while, and then the T was added to include Transgender people.
 
+While being Transgender is not the same as being Lesbian, Gay, or Bisexual, I believe that it was a very good idea to include it in the acronym because first, someone must figure out what gender they identify as before they can figure out whether they are Straight or Gay.
+
+![chastity_transgender_flag.png](https://chastitywhiterose.com/wp-content/uploads/2025/06/chastity_transgender_flag.png)
+
 LGBT was just fine because it was four letters, did not take long to type, and fit into a 32-bit integer in a computer file. And then it got ruined when the Q was added. Q is often understood to represent "Queer", which is literally a term for something weird, odd, strange, or unusual. In modern times, it refers to any identity or sexuality that cannot be defined as Lesbian, Gay, Bisexual, or Transgender but that is still not cisgender and straight.
 
 Others refer to the Q as someone who is "Questioning" and hasn't quite figured out what they are yet. The lack of a common definition is part of what makes the Q confusing in the acronym, but I also understand that the idea was to be vague enough to include people not covered by the LGBT acronym. In this sense, it is much like the plus sign is used in LGBTQIA+. It leaves room for further definitions to be included in the umbrella term of Queer.
@@ -32,7 +36,7 @@ Instead, he finds that he is sexually attracted to men, but he is committed to h
 
 But the funny thing is that their marriage wasn't gay at the time but became that way later. I wish Steve and Alex all the happiness in the world, even though I made them up. However, similar stories of real people exist. Sometimes, relationships end because one or both people discover they are not as cisgender or heterosexual as they thought they were when they first met each other. I believe relationships like this probably can only be defined as Queer because no other suitable word for things like this exists.
 
-The point is that the minds and souls of people are quite fluid. People do not always remain the same in the way they feel, and sometimes they find themselves living a life that was not their choice but instead, one that they are in because it was **expected** by society.
+The point is that the minds and souls of people are quite fluid. People do not always remain the same in the way they feel, and sometimes they find themselves living a life that was not their choice but instead one that they are in because it was **expected** by society.
 
 In this book, I have chosen to stick with the acronym in its current most common form: "LGBTQIA+". I believe that this is sufficient because the plus sign refers to anything else that is not already included by the other letters.
 
