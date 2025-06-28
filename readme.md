@@ -101,3 +101,4 @@ Click the chapter you want to read next.
 
 [Chapter 9: Autism and the Misunderstood Rainbow](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-9.html)
 
+[Chapter 10: Consistently Pro-Life](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-10.html)
