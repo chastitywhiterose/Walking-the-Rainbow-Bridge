@@ -8,7 +8,7 @@ The jigsaw puzzle piece is also a relevant symbol because of the unique ability 
 
 But you might wonder what exactly Autism is. I can provide my explanation and point you to some resources. Autism is one of the hardest things to explain. In fact, it may be harder to describe Autism to a neurotypical (non-autistic person) than it is to explain LGBTQIA+ to cisgender straight people.
 
-But because I am even more autistic than I am Transgender,  I do believe I can help explain it a bit. Obviously, this is only my experience because each autistic person is different.
+But because I am even more autistic than I am Transgender, I do believe I can help explain it a bit. Obviously, this is only my experience because each autistic person is different.
 
 It might surprise you that I think in pictures and struggle with words. Words have never come easy to me. I could always talk since I was a small child, but I did not know what the words meant most of the time. I memorized quotes from cartoons and video games and repeated them endlessly.
 
@@ -36,7 +36,7 @@ For every rule that can be made to define what a man or a woman is, there is als
 
 But let me finish by telling you a story about the misunderstood Rainbow.
 
-There was a display put up about Autism by two librarians in a library in Sterline, Kansas. The Infinity Rainbow was displayed. Somebody thought it was about an LGBTQIA+ topic and complained. These two librarians were fired and then sued the Sterling Free Public Library.
+There was a display put up about Autism by two librarians in a library in Sterling, Kansas. The Infinity Rainbow was displayed. Somebody thought it was about an LGBTQIA+ topic and complained. These two librarians were fired and then sued the Sterling Free Public Library.
 
 <https://www.lgbtqnation.com/2023/09/2-librarians-were-fired-after-the-board-mistook-an-autism-symbol-for-a-pride-display-theyre-suing/>
 
