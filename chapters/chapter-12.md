@@ -1,0 +1,21 @@
+# Chapter 12: Why I Don't Use the Women's Restroom
+
+There is a lot I could say about the never-ending bathroom debate, although it will be ignored. The issue would be resolved if unisex restrooms became the norm, as in one person, one toilet, and one sink. This design was how the restrooms were at the Hy-Vee where I used to work. In fact, originally, they had gendered signs. There were 6 restrooms, and 3 were labeled female and 3 were labeled male. Eventually, they got rid of those signed and replaced them all with unisex signs. There was no point in gendering them because only one person went in at a time, and no one's privacy was ever violated.
+
+If businesses took the same method as the Hy-Vee on Rice Road in Lee's Summit did, **there would be no bathroom debate** over whether transgender people should be allowed to use the restroom that matches their sense of gender identity.
+
+This problem is kept alive because **society wants an excuse to be hateful to transgender people**. I am full aware of this, and I know that my solution will never be implemented on a wide scale. For this reason, I would like to go a step further and explain why I never use a women's restroom.
+
+I don't use the women's restroom because I need to protect myself from the women. The worst men could do to me is rape me or murder me when I use the restroom. However, what a woman can do to me is far worse. If I were ever foolish enough to use a public women's restroom, it would only take one woman in there accusing me of trying to assault her sexually. Of course, it would not be true, but it doesn't have to be. Either way, someone will call the police, I will probably be arrested, and sent to a men's prison where I **will be raped or otherwise beaten by violent men much more dangerous than those in a men's public restroom**.
+
+I also would experience no benefit to using the women's restroom. I don't wish to be around women I don't know because I can't trust them not to hurt me. I also don't want to hear whatever conversations they are having. They are probably complaining about men, and they will see me as an enemy and accuse me of being a man. I don't wish to deal with that.
+
+I have used the men's restroom all my life and I have never even once seen the penis of any of the men there. That is because I am not looking for people's genitals! Another thing I like about men is that they go in there, pee, poop, fart, or whatever. No conversations, no doing their makeup, and just getting back to working or shopping.
+
+Although my solution of continuing to use the men's restroom is quite convenient for me, **I completely oppose any law or policy that dictates what restroom people are forced to use**. Such laws are impossible to enforce in any meaningful way. Do police have to stand at the entrance of ALL public restrooms and pull the pants down of anyone who just needs to pee? How does this work with people who have had their genitals removed through surgery? What about women who have short hair and therefore look just like men?
+
+I highly doubt that most people have logically thought about the consequences of trying to legally require people to use the restroom of their "biological sex". It does not take into account intersex people or transgender men who look like someone who belongs in the men's restroom because they have been on testosterone long enough to have a beard and a deep voice.
+
+I am sad that this bathroom controversy exists at all. Still, because it does, I would suggest that both transgender women and transgender men use the men's restroom unless a unisex restroom is available. I have never once been attacked in a men's restroom, but I happen to know a cisgender female former manager at Walmart who was attacked in the women's restroom for the crime of having short hair. Honestly, at this point people are safer in the men's restroom because even though there are some men their who may be dangerous, they will probably not be able to tell who they can safely rape or who might be strong enough to kick their butt. They will be less likely to take the risk, especially if they are in a room full of people who look like hybrids, just as I am.
+
+But regardless of anything I have said here, do whatever is safer in your specific situation and keep fighting for restroom equality!
