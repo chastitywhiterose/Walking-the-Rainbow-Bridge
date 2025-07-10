@@ -102,3 +102,7 @@ Click the chapter you want to read next.
 [Chapter 9: Autism and the Misunderstood Rainbow](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-9.html)
 
 [Chapter 10: Consistently Pro-Life](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-10.html)
+
+[Chapter 11: What the Gay Marriage Debate is REALLY about](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-11.html)
+
+[Chapter 12: Why I Don’t Use the Women’s Restroom](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-12.html)
