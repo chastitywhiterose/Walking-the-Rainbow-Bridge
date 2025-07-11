@@ -4,7 +4,7 @@ There is a lot I could say about the never-ending bathroom debate, although it w
 
 If businesses took the same method as the Hy-Vee on Rice Road in Lee's Summit did, **there would be no bathroom debate** over whether transgender people should be allowed to use the restroom that matches their sense of gender identity.
 
-This problem is kept alive because **society wants an excuse to be hateful to transgender people**. I am full aware of this, and I know that my solution will never be implemented on a wide scale. For this reason, I would like to go a step further and explain why I never use a women's restroom.
+This problem is kept alive because **society wants an excuse to be hateful to transgender people**. I am fully aware of this, and I know that my solution will never be implemented on a wide scale. For this reason, I would like to go a step further and explain why I never use a women's restroom.
 
 I don't use the women's restroom because I need to protect myself from the women. The worst men could do to me is rape me or murder me when I use the restroom. However, what a woman can do to me is far worse. If I were ever foolish enough to use a public women's restroom, it would only take one woman in there accusing me of trying to assault her sexually. Of course, it would not be true, but it doesn't have to be. Either way, someone will call the police, I will probably be arrested, and sent to a men's prison where I **will be raped or otherwise beaten by violent men much more dangerous than those in a men's public restroom**.
 
