@@ -106,3 +106,39 @@ Click the chapter you want to read next.
 [Chapter 11: What the Gay Marriage Debate is REALLY about](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-11.html)
 
 [Chapter 12: Why I Don’t Use the Women’s Restroom](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-12.html)
+
+[Chapter 13: My Immigrant Best Friend](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-13.html)
+
+[Chapter 14: The Problem With Nationalism](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-14.html)
+
+# Chapter Z: The Call to Action
+
+This book will forever be a work in progress. I plan to add chapters occasionally over time as new topics are suggested and as I learn more about those I have already mentioned. I have invested a lot of time and money in books to read and/or listen to so that I can be more accurate in my future chapters or corrections to existing chapters.
+
+No book is ever complete because there is no end to what can be learned about a topic. Future editions are always needed, even for Chess books! But LGBTQIA+ rights are very much under attack in many places in the United States of America at this time. Therefore, I have decided to go ahead and publish this book in its current form because if something happens to me, there is no one else who has the ability to keep my work going.
+
+Therefore, I have a request of my Rainbow people: if the chapters of *Walking the Rainbow Bridge* have helped you in any way, please share them anywhere you wish. I publish new chapters on both of the following sites to make sure they are not lost in the event of my death.
+
+<https://chastitywhiterose.com/walking-the-rainbow-bridge/>
+
+<https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/>
+
+Also, anyone is free to ask me questions or contribute a topic that they would like included in this book. I want this to be a community effort rather than just me writing about my own experiences. Different people have different stories and opinions to offer. My experiences are not the same as everyone else's.
+
+I also don't like that all people of a minority are lumped together as if we are all the same. Each letter of the LGBTQIA+ acronym is only a label that applies to millions of people within that category.
+
+Therefore, I look forward to hearing from my Rainbow people and their allies about how we can build the Rainbow Bridge together and be fabulous!
+
+# My Books
+
+This book, as well as all my previous books, can be found on Amazon, Apple Books, Google Play Books, and many other platforms. The following sites are automatically updated when I publish books with Draft2Digital.
+
+<https://books2read.com/ap/nlZV3A/Chastity-White-Rose>
+
+<https://www.smashwords.com/profile/view/chastitywhiterose>
+
+If you are new to my work, I recommend reading the series: Chander's Honesty.
+
+<https://chastitywhiterose.com/chandlers-honesty/>
+
+It establishes the history I have gone through in almost my entire life as I talk to a unicorn named Honesty. It began when I was 31 years old and was honest with myself about everything. That was also the year I came out as Transgender.
