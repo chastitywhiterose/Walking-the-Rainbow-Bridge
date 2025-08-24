@@ -711,36 +711,49 @@ But more importantly, can you still love someone while you are posting on Facebo
 
 But once again, you are calling someone a sinner, as if somehow they are more in the wrong than you are. It is still hypocritical to speak of your neighbor as someone you love in spite of their being a sinner. When a person says this, they are implying that they are perfect and somehow not being a sinner, and this gives them the right to call someone else a sinner.
 
+> Matthew 7:1 "Do not judge so that you will not be judged. 2 For by the standard you judge you will be judged, and the measure you use will be the measure you receive. 3 Why do you see the speck in your brother's eye, but fail to see the beam of wood in your own? 4 Or how can you say to your brother, 'Let me remove the speck from your eye,' while there is a beam in your own? 5 You hypocrite! First, remove the beam from your own eye, and then you can see clearly to remove the speck from your brother's eye.
 
+It's also worth mentioning that the statement "Love the sinner, hate the sin" only applies in the context of Christianity. Rarely do non-Christians ever use the word "sin". However, the culture, most of which has been raised in one of the denominations of Christianity, understands that you are judging them, even if they are not sure what they are being judged for.
+
+The only advice I can give here is to stop using this phrase unless you are prepared to be very specific in what way you love someone, and also what sin it is that you hate. And **PLEASE CHOOSE A DIFFERENT SIN ONCE IN A WHILE**. The LGBTQIA+ people are tired of being picked on as if we are the only sinners. You would be wise to look at what sins you and many other self-identified "Christians" are doing while distracting themselves with the sins of others, so that they don't have to change their own behavior. Remove all the sin from your own life, then we will talk.
 
 # Chapter 16: Pedophilia is no Joke
 
-An event happened that made me feel suicidal in the winter near christmas time. A team lead at Walmart decided it would be a good idea to come bother me while I was stocking the baking aisle A17.
+An event happened that made me feel suicidal in the winter near Christmas time. A team lead at Walmart decided it would be a good idea to bother me while I was stocking the baking aisle A17. He decided to ask me if I wanted to have children. I told him maybe if I were married and wanted to adopt children. And he said, “No, I mean HAVE children in a way like pedophilia”.
 
-He decided to ask me if I wanted to have children. I told him maybe if I was married and wanted to adopt children. And he said “No, I mean HAVE children in a way like pedophilia”.
+I was upset at the time, but told him I would never hurt a child because I know what it’s like to be molested. He went on, and I went back to stocking and trying to look like I was okay. Inside, I was thinking, “What the hell?!?!?! Why would he even ask me that?”
 
-I was upset at the time but told him I would never hurt a child because I know what it’s like to be molested.
+A few days later, I questioned him on why he asked me that. He said he was joking, but I said it was not something to joke about at work and distract me from my job. He said, “Why does it bother you if it’s not true?”
 
-He went on and I went back to stocking and trying to look like I was okay. Inside I was thinking “What the hell?!?!?! Why would he even ask me that?”
+He apologized, reluctantly, in the presence of the overnight coach who witnessed our short fight.
 
-A few days later, I questioned him on why he asked me that. He said he was joking but I said it was not something to joke about at work and distract me from my job. He said “why does it bother you if it’s not true?”
+I was not completely satisfied with this, and he still made plenty of sexual jokes over the next few months. After a while, I really started wondering if he jokes this way with everyone (not good), or if he specifically is targeting me because I am a transgender woman.
 
-He apologized, reluctantly, in the presence of the overnight coach who witness our short fight.
+At first, I was afraid to report it because I knew the history of LGBTQIA+ people being accused of all being child molesters. It also became more prevalent during this time because of the open political hatred of transgender people during 2024 and 2025. Therefore, I had reason to believe I could be arrested just on the accusation of being a person who was sexually attracted to children, even if I had never done anything to suggest this was true, nor would I have done something sexual to a child even if it were true.
 
-I was not completely satisfied with this and he still made plenty of sexual jokes over the next few months. After awhile I really started wondering if he jokes this way with everyone (not good), or if he specifically is targetting me because I am a transgender woman.
+I had a difficult decision to make:
 
-At first I was afraid to report it because I know the history of LGBTQIA+ people being accused of all being child molesters. It also became more prevalent during this time because of the open political hatred of transgender people during 2024 and 2025.
+1. Report to ethics and get fired because they will probably think I am a pedophile, and then call the police. I could be written into a sex offender registry, quite possibly be sent to a men’s prison, and be raped by actual violent criminals.
 
-I had a difficult decision to make.
+2. Quit my job to avoid seeing this team lead, who apparently thought I was a pedophile and that it was some kind of joke to ask me about it.
 
-Report to ethics and get fired because they will probably think I am a pedophile and then call the police and I end up on a sex offender registry, quite possibly be sent to a men’s prison and be raped by actual violent criminals.
-Quit my job to avoid seeing this team lead, who apparently thought I was a pedophile and that it was some kind of joke to ask me about it.
-Commit suicide because I live in a world where other transgender women are murdered every single day by transphobic people.
-Stay silent and hope the problem goes away.
+3. Commit suicide because I live in a world where other transgender women are murdered every single day by transphobic people who assume they are criminals and deserve it.
 
-I chose option 4 for longer than I should have, however, pride month of 2025 broke me emotionally. I started working on my book, Walking the Rainbow bridge for my portfolio 3 project with full sail university.
+4. Stay silent and hope the problem goes away.
 
-During this time, I did a lot of research and read the worst transphobic content on the internet.
+I chose option 4 for longer than I should have; however, Pride Month of 2025 broke me emotionally. I started working on my book, Walking the Rainbow Bridge, for my Portfolio 3 project with Full Sail University.
+
+During this time, I did a lot of research and read the worst transphobic content on the internet. I became very depressed as I considered how dangerous the situation was. Finally, I made the decision to make a report against this team lead to protect other people. No matter what happens to me, I don't want him to talk to someone else this way.
+
+1. It is simply unacceptable to distract someone from the work they are being paid to do with personal matters that should not be discussed in the workplace.
+2. Even if someone is a pedophile, this is not the same as a child molester. People don't have to have sex with someone they are attracted to. Therefore, they are not a threat to anyone, especially if all they are doing is stocking at Walmart.
+3. Pedophilia is no joke. It is an unfortunate condition to be attracted to children sexually. I feel bad for these people because they were also born with a brain that does not operate in a way society understands, and they face much persecution. This topic is nothing to joke about; no matter who you are or what your position is, it is not funny.
+
+Also, to make matters clear, a Pedophile is someone who is sexually attracted to children. A child molester is someone who actually tries to have sex with children. A person can be a pedophile but never have sex with children. A person can molest a child even if they are not a pedophile. These two things are only loosely related.
+
+I am tired of being treated as if I were some kind of danger to children. I was quite offended and depressed at the thought that this team lead thought that I wanted to have sex with children. Even now, I worry about what led him to think this about me. Is it because I am transgender, or is he trying to tell me something about himself? Either way, this has no place at Walmart or anywhere, for that matter, except perhaps a therapist's office.
+
+The only reason I wrote this is so that people are aware of the reality that the innocent rainbow people are often accused of unspeakable crimes against children. But that's not even the worst part. Those who are raping children are not the ones being called pedophiles. Most children are raped by their own fathers or a catholic priest. An overnight stocker at your local Walmart is not someone you should be afraid of. But that one team lead who thinks Pedophilia is some kind of joke, I still worry about him whenever I have to work overnight at Walmart.
 
 # Chapter Z: The Call to Action
 
