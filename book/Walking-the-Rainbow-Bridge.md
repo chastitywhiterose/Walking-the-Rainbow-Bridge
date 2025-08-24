@@ -664,6 +664,76 @@ A prejudice is not the same as hatred or anger. However, when you see a snake, y
 
 What I am saying is that it is important to get to know people rather than letting those prejudices, which protect us in the short term, become something worse that causes us to be the very monsters we assume others to be.
 
+# Chapter 15: Love the Sinner Hate the Sin
+
+So many times in my life I have heard the phrase "Love the sinner, hate the sin". On the surface, it sounds good because you are saying that you love someone but disagree with what they do, but this calls into question both the intent behind the person speaking it and who they are saying it to.
+
+Interestingly, the only time I can remember hearing "Love the sinner, hate the sin" is when Christians are judging people for being gay or transgender. It doesn't really work very well in this context because the person doesn't know what the "sin" is that they are talking about. Imagine if you said "Love the black person but hate the sin". This implies that you think someone born with black skin has somehow sinned or erred in some way, as if they could have done something different and been born with a different skin color.
+
+I know what you'll say next: "But being gay is a choice!"
+
+First, it isn't a choice in any meaningful sense, second, if it was a choice, it would actually be the better choice (in my opinion anyway, more on that later), third, you know what *is* a choice? Shutting up when you don't know what you're talking about.
+
+I will use 3 examples to illustrate the point I am making.
+
+## Judging the Gay Person
+
+A person finds out that someone they know is gay. Then they start talking about hating their sin or their sinful lifestyle. But the truth is, a straight person does not know what sin they are speaking about. Are they speaking about the sin of being attracted to the same sex, which is not an action? Are they talking about a specific sexual action the person is doing? Are they in their house watching them as they do this action by themself or with their partner and judging them for doing it wrong? What specifically are they even talking about.
+
+## Judging the Transgender Person
+
+Suppose someone discovers that someone is transgender, or simply assumes it because they don't look like what they think a man or woman should look like. Some thoughts they might have include
+
+- That person is too tall to be a woman! They must really be a man pretending to be a woman! Someone call the police!
+- That woman has a deep voice, I bet she is really a man!
+- That woman has small boobs, I bet it's a man!
+- That woman has facial hair, it's a man! Protect the children!
+- That man has boobs, it must have been a woman, but it has a beard, what the hell is it?
+- That man sounds like a woman, I bet she tried to act like a man because she was such an ugly woman!
+
+These are just a few of the things I have heard or read. Most of the time, these things are said as Facebook or YouTube commends on a news story about someone who was just trying to use the restroom or play a sport.
+
+But what I have noticed is that while gay people are judged for actions (whether real or imaginary), transgender people are judged for how their body looks. Whether they are being judged by how tall or short they are, the sound of their voice, or the size of their breasts (why are people staring at other people's chests so much?), the point of all these sayings is to insult people for how they look. What is the sin they are hating as they claim to love the sinner? Wait, is that woman who grows facial hair due to Polycystic Ovary Syndrome? What about these thoughts or words about the size of their breasts? Is having a certain size of boobs a sin? What size is the correct size and how does someone make their boobs bigger or smaller?
+
+More context is needed to even know what the sin is that they are referring to. Most of the time, this person is very vague on what the sin is. That is because they don't really know any information about this person they are judging. This phrase is used mostly on strangers that they don't know.
+
+When someone speaks of "sin", the context usually implies that they think the person has a made an error or is doing something morally wrong. These two definitions get mixed together. I will call these definitions A and B.
+
+Sin Version A: Making a wrong move, such as moving a chess piece that causes the loss of the game, or forgetting a semicolon in a C program that you are compiling. Or perhaps "missing the mark" when you throw a ball or shoot an arrow at a target.
+
+Sin Version B: Doing something that hurts someone, such as murder, lying, stealing, or committing adultery (having sex with someone other than your spouse).
+
+Sin version A and B are not the same thing and they are not compatible. Sin A refers to a mistake made when playing a game or doing some action that has no harmful consequence. Sin B means you did something that hurt a person either permanently by killing them, or at least temporarily such as stealing their money that you can theoretically pay back.
+
+# Chapter 16: Pedophilia is no Joke
+
+An event happened that made me feel suicidal in the winter near christmas time. A team lead at Walmart decided it would be a good idea to come bother me while I was stocking the baking aisle A17.
+
+He decided to ask me if I wanted to have children. I told him maybe if I was married and wanted to adopt children. And he said “No, I mean HAVE children in a way like pedophilia”.
+
+I was upset at the time but told him I would never hurt a child because I know what it’s like to be molested.
+
+He went on and I went back to stocking and trying to look like I was okay. Inside I was thinking “What the hell?!?!?! Why would he even ask me that?”
+
+A few days later, I questioned him on why he asked me that. He said he was joking but I said it was not something to joke about at work and distract me from my job. He said “why does it bother you if it’s not true?”
+
+He apologized, reluctantly, in the presence of the overnight coach who witness our short fight.
+
+I was not completely satisfied with this and he still made plenty of sexual jokes over the next few months. After awhile I really started wondering if he jokes this way with everyone (not good), or if he specifically is targetting me because I am a transgender woman.
+
+At first I was afraid to report it because I know the history of LGBTQIA+ people being accused of all being child molesters. It also became more prevalent during this time because of the open political hatred of transgender people during 2024 and 2025.
+
+I had a difficult decision to make.
+
+Report to ethics and get fired because they will probably think I am a pedophile and then call the police and I end up on a sex offender registry, quite possibly be sent to a men’s prison and be raped by actual violent criminals.
+Quit my job to avoid seeing this team lead, who apparently thought I was a pedophile and that it was some kind of joke to ask me about it.
+Commit suicide because I live in a world where other transgender women are murdered every single day by transphobic people.
+Stay silent and hope the problem goes away.
+
+I chose option 4 for longer than I should have, however, pride month of 2025 broke me emotionally. I started working on my book, Walking the Rainbow bridge for my portfolio 3 project with full sail university.
+
+During this time, I did a lot of research and read the worst transphobic content on the internet.
+
 # Chapter Z: The Call to Action
 
 This book will forever be a work in progress. I plan to add chapters occasionally over time as new topics are suggested and as I learn more about those I have already mentioned. I have invested a lot of time and money in books to read and/or listen to so that I can be more accurate in my future chapters or corrections to existing chapters.
