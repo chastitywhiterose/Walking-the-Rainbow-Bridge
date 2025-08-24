@@ -111,6 +111,8 @@ Click the chapter you want to read next.
 
 [Chapter 14: The Problem With Nationalism](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-14.html)
 
+[Chapter 15: Love the Sinner Hate the Sin](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-15.html)
+
 # Chapter Z: The Call to Action
 
 This book will forever be a work in progress. I plan to add chapters occasionally over time as new topics are suggested and as I learn more about those I have already mentioned. I have invested a lot of time and money in books to read and/or listen to so that I can be more accurate in my future chapters or corrections to existing chapters.
