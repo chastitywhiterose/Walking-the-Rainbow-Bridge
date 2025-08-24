@@ -40,6 +40,8 @@ Chastity White Rose
 
 [Chapter 14: The Problem With Nationalism](https://chastitywhiterose.com/2025/07/15/chapter-14-the-problem-with-nationalism/)
 
+[Chapter 15: Love the Sinner Hate the Sin](https://chastitywhiterose.com/2025/08/23/chapter-15-love-the-sinner-hate-the-sin/)
+
 # Chapter Z: The Call to Action
 
 This book will forever be a work in progress. I plan to add chapters occasionally over time as new topics are suggested and as I learn more about those I have already mentioned. I have invested a lot of time and money in books to read and/or listen to so that I can be more accurate in my future chapters or corrections to existing chapters.
