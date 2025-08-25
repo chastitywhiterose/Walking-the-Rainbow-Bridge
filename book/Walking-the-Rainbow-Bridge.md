@@ -672,7 +672,7 @@ Interestingly, the only time I can remember hearing "Love the sinner, hate the s
 
 I know what you'll say next: "But being gay is a choice!"
 
-First, it isn't a choice in any meaningful sense. Second, if it were a choice, it would actually be the fine choice. Third, you know what *is* a choice? Shutting up when you don't know what you're talking about.
+First, it isn't a choice in any meaningful sense. Second, if it were a choice, it would actually be a fine choice. Third, you know what *is* a choice? Shutting up when you don't know what you're talking about.
 
 I will use 2 examples to illustrate the point I am making.
 
@@ -693,7 +693,7 @@ Suppose someone discovers that someone is transgender, or simply assumes it beca
 
 These are just a few examples of the things I have heard or read. Most of the time, these things are said on Facebook or YouTube comments on a news story about someone who was just trying to use the restroom or play a sport.
 
-But what I have noticed is that while gay people are judged for actions (whether real or imaginary), transgender people are judged for how their body looks. Whether they are being judged by how tall or short they are, the sound of their voice, or the size of their breasts (why are people staring at other people's chests so much?), the point of all these sayings is to insult people for how they look. What is the sin they are hating as they claim to love the sinner? Wait, is that the woman who grows facial hair due to Polycystic Ovary Syndrome? What about these thoughts or words about the size of their breasts? Is having a certain size of boobs a sin? What is the correct breast size, and how does someone make their boobs bigger or smaller?
+But what I have noticed is that while gay people are judged for actions (whether real or imaginary), transgender people are judged for how their body looks. Whether they are being judged by how tall or short they are, the sound of their voice, or the size of their breasts (why are people staring at other people's chests so much?), the point of all these sayings is to insult people for how they look. What is the sin they are hating as they claim to love the sinner? Wait, is a woman sinning if she grows facial hair due to Polycystic Ovary Syndrome? What about these thoughts or words about the size of their breasts? Is having a certain size of boobs a sin? What is the correct breast size, and how does someone make their boobs bigger or smaller?
 
 More context is needed even to know what the sin is that they are referring to. Most of the time, this person is very vague on what the sin is. That is because they don't really know any information about the person they are judging. This phrase is used mostly to strangers whom they don't know.
 
