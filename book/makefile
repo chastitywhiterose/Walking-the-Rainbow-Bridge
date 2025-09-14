@@ -15,6 +15,6 @@ html:
 html-book:
 	pandoc $(source) -o book.html -s --metadata title=$(title) --metadata subtitle=$(subtitle) --metadata author=$(author)
 push:
-	git add .
+	git add ../*
 	git commit -m "Book Update"
 	git push
