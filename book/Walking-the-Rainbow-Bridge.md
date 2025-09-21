@@ -639,7 +639,7 @@ This act of destroying the people of the land and taking over is called colonial
 
 The reason I am not a fan of countries is that they almost always involve colonialism and violence at some point. The European settlers were not born in America, yet they all became citizens. The Native Americans were born here, yet they were not treated as citizens and were forced to give up their land, languages, and way of life.
 
-How then can we say that someone coming from another country to the USA has any more right as a citizen to live and work here? Declaring someone like me a citizen because I am born here, and yet not someone who came from somewhere else, makes no sense.
+How then can we say that someone coming from another country to the USA has any more or less right as a citizen to live and work here? Declaring someone like me a citizen because I am born here, and yet not someone who came from somewhere else, makes no sense.
 
 That is why I believe in open borders and equal citizenship for all people regardless of country of origin, race, language, or religion. I am against [nationalism](https://www.merriam-webster.com/dictionary/nationalism). I just don't believe that I am better or worse than anyone because of my birth here.
 
@@ -773,6 +773,34 @@ I would prefer a world where biological sex and genitals didn't even exist. Then
 No, I am not a pedophile, and no, I do not in any way condone sexual relations with children. However, if being paranoid and protecting your kids from anyone who you think is a threat keeps them safe, then I suggest you do so.
 
 I have intentionally held back writing this chapter for months, even though it was on my mind constantly. However, just a few days ago, on September 10th, 2025, Charlie Kirk was shot in the neck and died very quickly. I just wanted to make sure that before someone shoots me in the neck that I have written what I need to say. Every death is a reminder of how short and unpredictable life is. Don't wait until it is too late to write the book you have been planning, spend time with your loved ones, and live authentically for what you believe in, even though doing so is probably why someone will shoot you for it.
+
+# Chaper 17: Blessed are the Peacemakers
+
+Right now in September 2025, the world has gone mad on social media with everyone having an opinion on the murder of Charlie Kirk. I have no such opinion about him but I think it is a fine time to remind you why I have been committed to non-violence for many years. Therefore, my only statement that I will ever make is that it doesn't matter who Charlie was or whether you like the things he said, the fact is, nobody should be shot just for what they are speaking.
+
+I didn't know Charlie and I didn't know who he was prior to his being shot on September 10, 2025. However, I thought it was quite strange that this one act of murder got so much media attention, even though people are getting shot, bombed, stabbed, or starved to death, including many of those who are innocent and have done nothing wrong.
+
+Although I didn't know Charlie Kirk personally, I think he had the right idea because he did not commit violence against people but instead he had debates with them and talked about disagreements rather than resorting to violence. He talked to people and he said some things that people disagreed with sometimes. After the news broke that he was shot, many people on Facebook, Instagram, and TikTok were celebrating that he was shot and said he deserved it.
+
+The real tragedy is not the death of Charlie Kirk but instead the death of freedom of speech. If you kill someone just because you don't like what they said, then the same reasoning could be used to kill you when someone doesn't like what you said.
+
+Moreover, I think violence is for the weak. I think it takes a stronger person to have difficult conversations about areas of disagreement and try to resolve them through peaceful means. I personally think that guns, bombs, and all manner of military equipment should be destroyed because nobody should be killing anyone.
+
+Let me be clear, I understand that others are violent and that they do not follow my philosophy of radical pacifism and peaceful protest. I also don't think someone can reach this stage without an evolution in ethics and a strong moral framework based on a solid philosophy or religion.
+
+To be a peacemaker is to take the hard route, instead of the easy path of violence. Living peacefully and resolving conflict takes time, conversations, studying history, reading books, and considering each new issue as they arise.
+
+Charlie was not perfect. He was just as flawed as any human is, but he did identify as a Christian and I think he would have understood that violence is not good. Those who call themselves Christians would do well to remember what Jesus said about the importance of being peaceful and non-violent.
+
+---
+
+*Matthew 5:9 Blessed are the peacemakers, for they will be called the children of God.*
+
+*Matthew 26:47 While he was still speaking, Judas, one of the twelve, arrived. With him was a large crowd armed with swords and clubs, sent by the chief priests and elders of the people. 48 (Now the betrayer had given them a sign, saying, “The one I kiss is the man. Arrest him!”) 49 Immediately he went up to Jesus and said, “Greetings, Rabbi,” and kissed him. 50 Jesus said to him, “Friend, do what you are here to do.” Then they came and took hold of Jesus and arrested him. 51 But one of those with Jesus grabbed his sword, drew it out, and struck the high priest’s slave, cutting off his ear. 52 Then Jesus said to him, “Put your sword back in its place! For all who take hold of the sword will die by the sword. 53 Or do you think that I cannot call on my Father and that he would send me more than 12 legions of angels right now? 54 How then would the scriptures that say it must happen this way be fulfilled?” 55 At that moment Jesus said to the crowd, “Have you come out with swords and clubs to arrest me like you would an outlaw? Day after day I sat teaching in the temple courts, yet you did not arrest me. 56 But this has happened so that the scriptures of the prophets would be fulfilled.” Then all the disciples left him and fled.*
+
+---
+
+
 
 # Chapter Z: The Call to Action
 
