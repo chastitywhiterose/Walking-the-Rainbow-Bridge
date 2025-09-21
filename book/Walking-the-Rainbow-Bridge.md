@@ -774,23 +774,23 @@ No, I am not a pedophile, and no, I do not in any way condone sexual relations w
 
 I have intentionally held back writing this chapter for months, even though it was on my mind constantly. However, just a few days ago, on September 10th, 2025, Charlie Kirk was shot in the neck and died very quickly. I just wanted to make sure that before someone shoots me in the neck that I have written what I need to say. Every death is a reminder of how short and unpredictable life is. Don't wait until it is too late to write the book you have been planning, spend time with your loved ones, and live authentically for what you believe in, even though doing so is probably why someone will shoot you for it.
 
-# Chaper 17: Blessed are the Peacemakers
+# Chapter 17: Blessed are the Peacemakers
 
-Right now in September 2025, the world has gone mad on social media with everyone having an opinion on the murder of Charlie Kirk. I have no such opinion about him but I think it is a fine time to remind you why I have been committed to non-violence for many years. Therefore, my only statement that I will ever make is that it doesn't matter who Charlie was or whether you like the things he said, the fact is, nobody should be shot just for what they are speaking.
+Right now, in September 2025, the world has gone mad on social media, with everyone having an opinion on the murder of Charlie Kirk. I have no such opinion about him but I think it is a fine time to remind you why I have been committed to non-violence for many years. Therefore, my only statement that I will ever make is that it doesn't matter who Charlie was or whether you like the things he said; the fact is, nobody should be shot just for what they are speaking.
 
 I didn't know Charlie and I didn't know who he was prior to his being shot on September 10, 2025. However, I thought it was quite strange that this one act of murder got so much media attention, even though people are getting shot, bombed, stabbed, or starved to death, including many of those who are innocent and have done nothing wrong.
 
-Although I didn't know Charlie Kirk personally, I think he had the right idea because he did not commit violence against people but instead he had debates with them and talked about disagreements rather than resorting to violence. He talked to people and he said some things that people disagreed with sometimes. After the news broke that he was shot, many people on Facebook, Instagram, and TikTok were celebrating that he was shot and said he deserved it.
+Although I didn't know Charlie Kirk personally, I think he had the right idea because he did not commit violence against people, but instead he had debates with them and talked about disagreements rather than resorting to violence. He talked to people, and he said some things that people disagreed with sometimes. After the news broke that he was shot, many people on Facebook, Instagram, and TikTok were celebrating that he was shot and said he deserved it.
 
-The real tragedy is not the death of Charlie Kirk but instead the death of freedom of speech. If you kill someone just because you don't like what they said, then the same reasoning could be used to kill you when someone doesn't like what you said.
+The real tragedy is not the death of Charlie Kirk but the death of freedom of speech. If you kill someone just because you don't like what they said, then the same reasoning could be used to kill you when someone doesn't like what you said.
 
 Moreover, I think violence is for the weak. I think it takes a stronger person to have difficult conversations about areas of disagreement and try to resolve them through peaceful means. I personally think that guns, bombs, and all manner of military equipment should be destroyed because nobody should be killing anyone.
 
 Let me be clear, I understand that others are violent and that they do not follow my philosophy of radical pacifism and peaceful protest. I also don't think someone can reach this stage without an evolution in ethics and a strong moral framework based on a solid philosophy or religion.
 
-To be a peacemaker is to take the hard route, instead of the easy path of violence. Living peacefully and resolving conflict takes time, conversations, studying history, reading books, and considering each new issue as they arise.
+To be a peacemaker is to take the hard route, instead of the easy path of violence. Living peacefully and resolving conflicts takes time, conversations, studying history, reading books, and considering each new issue as it arises.
 
-Charlie was not perfect. He was just as flawed as any human is, but he did identify as a Christian and I think he would have understood that violence is not good. Those who call themselves Christians would do well to remember what Jesus said about the importance of being peaceful and non-violent.
+Charlie was not perfect. He was just as flawed as any human is, but he did identify as a Christian, and I think he would have understood that violence is not good. Those who call themselves Christians would do well to remember what Jesus said about the importance of being peaceful and non-violent.
 
 ---
 
@@ -804,27 +804,27 @@ Charlie was not a Vegan, unfortunately, and he did not take a Vegan seriously wh
 
 [I Debated Charlie Kirk - He Deleted The Video](https://www.youtube.com/watch?v=O-r_zzDg9dU)
 
-I bring this up not to say that Charlie deserved to be shot. Rather, I mention it to show why even his attitudes and those who celebrated his death are operating under a culture of violence. People believe that they have the right to kill any animal, including humans as soon as the disagree with them or are of a difference race, species, religion, or political affiliation.
+I bring this up not to say that Charlie deserved to be shot. Rather, I mention it to show why even his attitudes and those who celebrated his death are operating under a culture of violence. People believe that they have the right to kill any animal, including humans, as soon as they disagree with them or are of a difference race, species, religion, or political affiliation.
 
 Charlie got the Vegan topic wrong, and sadly, due to his death, we will never see him become **consistently** pro-life.
 
-There is one thing I do agree with Charlie on though, he was right to be against abortion. In fact one of the things many people criticized him for was saying that the 45 million babies killed in abortion was worse than the holocaust where 6 million Jews were killed.
+There is one thing I do agree with Charlie on, though; he was right to be against abortion. In fact, one of the things many people criticized him for was saying that the 45 million babies killed in abortion was worse than the Holocaust, where 6 million Jews were killed.
 
 [Charlie Kirk Compares Abortion to the Holocaust](https://www.youtube.com/shorts/VpSvVeQIQfc)
 
-I know people will not like it but his logic is correct on this issue. Deciding that a group of people are unwanted or undesirable and then killing them all is an unjustifiable genocide.
+Charlie's logic is correct on this issue. Deciding that a group of people is unwanted or undesirable and then killing them all is an unjustifiable genocide.
 
-And if Charlie was still alive, I would suggest to him that he use this same logic to reconsider what humans do to animals.
+And if Charlie were still alive, I would suggest to him that he use this same logic to reconsider what humans do to animals.
 
 <https://christspiracy.com/>
 
 [The Ugly Truth: Most Important Films to Watch](https://www.facebook.com/legacy/notes/744626149556689)
 
-At this time, people are also trying to blame the transgender people for the death of Charlie Kirk. I must admit that part of the problem is that so many young people, including many transgender people are celebrating the death of Charlie Kirk. This does not make us look any better in a time when we are the most hated group of people in the United States of America.
+At this time, people are also trying to blame the transgender people for the death of Charlie Kirk. I must admit that part of the problem is that so many young people, including many transgender people, are celebrating the death of Charlie Kirk. This does not make us look any better in a time when we are the most hated group of people in the United States of America.
 
-Shortly after the death of Charlie Kirk, I couldn't help but notice that the attitudes of some of my coworkers had changed towards me. Everyone was talking about the death of Charlie Kirk because it was all over the news media. They looked at me as if I killed him, just because I am transgender.
+Shortly after the death of Charlie Kirk, I couldn't help but notice that the attitudes of some of my coworkers had changed towards me. Everyone was talking about the death of Charlie Kirk because it was all over the news media. They looked at me as if I had killed him, just because I am transgender.
 
-I didn't want to make a statement about this issue but I also felt a responsibility to say something because I will not risk my silence as being interpreted that I am in favor of the murder of Charlie Kirk.
+I didn't want to make a statement about this issue, but I also felt a responsibility to say something because I will not risk my silence being interpreted as meaning that I am in favor of the murder of Charlie Kirk.
 
 When Transgender people are happy about the death of some famous dude like Charlie, how is it any better than when people murder transgender people?
 
@@ -845,7 +845,7 @@ Schindler: That's power, Amon. That is power.
 
 ---
 
-In a similar way, I think true power is to be able to do better than violence. Instead, we can educate, we can peacefully protest, and we can write and record ideas that live long after we die. Which reminds me, I have one more quote to share for this chapter.
+Similarly, I think true power is to be able to do better than violence. Instead, we can educate, we can peacefully protest, and we can write and record ideas that live long after we die. Which reminds me, I have one more quote to share for this chapter.
 
 ---
 
