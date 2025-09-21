@@ -115,6 +115,8 @@ Click the chapter you want to read next.
 
 [Chapter 16: Pedophilia is no Joke](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-16.html)
 
+[Chapter 17: Blessed are the Peacemakers](https://chastitywhiterose.github.io/Walking-the-Rainbow-Bridge/chapters/chapter-17.html)
+
 # Chapter Z: The Call to Action
 
 This book will forever be a work in progress. I plan to add chapters occasionally over time as new topics are suggested and as I learn more about those I have already mentioned. I have invested a lot of time and money in books to read and/or listen to so that I can be more accurate in my future chapters or corrections to existing chapters.

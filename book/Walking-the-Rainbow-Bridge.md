@@ -639,7 +639,7 @@ This act of destroying the people of the land and taking over is called colonial
 
 The reason I am not a fan of countries is that they almost always involve colonialism and violence at some point. The European settlers were not born in America, yet they all became citizens. The Native Americans were born here, yet they were not treated as citizens and were forced to give up their land, languages, and way of life.
 
-How then can we say that someone coming from another country to the USA has any more or less right as a citizen to live and work here? Declaring someone like me a citizen because I am born here, and yet not someone who came from somewhere else, makes no sense.
+How then can we say that someone coming from another country to the USA has any more or less of a right as a citizen to live and work here? Declaring someone like me a citizen because I am born here, and yet not someone who came from somewhere else, makes no sense.
 
 That is why I believe in open borders and equal citizenship for all people regardless of country of origin, race, language, or religion. I am against [nationalism](https://www.merriam-webster.com/dictionary/nationalism). I just don't believe that I am better or worse than anyone because of my birth here.
 
